@@ -1,0 +1,2 @@
+# Batman
+La historia de Batman comienza con la trágica noche en que sus padres, Thomas y Martha Wayne, son asesinados por un ladrón, un evento que marca la vida del joven Bruce Wayne. Jura dedicar su vida a combatir el crimen y, tras entrenarse física e intelectualmente, se inspira en los murciélagos para crear su alter ego: Batman, un vigilante nocturno que utiliza su intelecto, fortuna y tecnología para infundir terror en los corazones de los criminales en Gotham City
